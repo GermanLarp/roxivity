@@ -16,7 +16,7 @@ probably not even a complete list lol
 - https://flipd.gg/@roxivity
 - https://flipd.gg/@messias
 - https://flipd.gg/@wither (bought this multi LOL)
-- https://flipd.gg/@Sukuna (banned at 900 rep LOL)
+- https://flipd.gg/@Sukuna
 - https://flipd.gg/@goatable
 - https://flipd.gg/@exconce
 - https://flipd.gg/@volance
