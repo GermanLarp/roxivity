@@ -44,7 +44,7 @@ I can only imagine what the *"customers with $5-20k accounts"* needing to be unl
 ## Crybaby
 This nigga has been pissing and crying whenever shit doesn't go exactly his way for years.
 
-Previal scams him? *Lock Prevail, **me and saffy's** accounts.*
+Prevail scams him? *Lock Prevail, **me and saffy's** accounts.*
 Mark autoclaims rage on a shit mfa because roxskibidi and evil were stupid enough to drop it when there's no guaranteed transfers? *Flip out on Mark as if it's his fault they're retarded.*
 
 Also known to have locked other people's accounts when they shittalk him, then brag about it.
