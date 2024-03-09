@@ -37,6 +37,8 @@ I bought Arina weeks or months after the whole prevail-scammed-roxivity thing. I
 
 That was practically a month ago now and still haven't heard shit about my account, he's been dodging dms or just not answering. Saying shit like *"i couldn't do it because i didn't get the rep i wanted"*, or *"i was busy ill get to it later"* meanwhile he's been active on cheatbreaker (in 2024) for hours every day.
 
+Until roxivity decides to stop egoing my dms this part will stay in the paste.
+
 I can only imagine what the *"customers with $5-20k accounts"* needing to be unlocked by t.me/grave's unlock service are experiencing. Yes, the t.me/grave unlock service is provided by roxivity, even though they don't tell you that. Wonder why the self-proclaimed "super-trusted" OG com member roxjvjty wouldn't want his name on that little operation. Probably because *abso-fucking-lutely nobody* would pay **$3k minimum** for the service if they knew roxivity would have their $20k account's OGI.
 
 ## Crybaby
