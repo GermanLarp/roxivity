@@ -22,10 +22,17 @@ probably not even a complete list lol
 - https://flipd.gg/@volance
 
 ## Scammer/Larping locking accounts he's never owned
-https://flipd.gg/Thread-Messias-scammer-selling-stolen-ticketed-accounts
+[Flipd thread where his multi got banned for selling a 2012 beamed off a dead kid](https://flipd.gg/Thread-Messias-scammer-selling-stolen-ticketed-accounts)
+- Knew it was stolen off NLPMinecraft, still bought it anyway and even asked abt bans like it was any other account: https://imgur.com/a/rOZGgNg
+- Tried to appeal the blockmania ban and even complained when it was denied. Clown world we live in where poor faggots think they can make money off reselling accs beamed off ogo.
+  - https://ibb.co/z67VfMb
+  - https://ibb.co/3BJ5gkD
+  - https://ibb.co/NsXCJz1
+  - This is definitely roxivity, even though he tried to be slick by using an alt. The messages were sent over a week before he sold it to richstage (the guy that made the DD) according to dates seen in the screenshot of the deal provided by roxivity himself in the DD: https://prnt.sc/JrTKIkDnKnKD
 
-Anxieted is the only account I have concrete evidence of him scamming, so its the only one included in the paste.
-https://namemc.com/profile/c8efda89-e4cd-4afb-bee8-66ddd052f0d0
+[Him trying to pull oge access to /6's triple](https://imgur.com/a/rOZGgNg)
+
+[Anxieted](https://namemc.com/profile/c8efda89-e4cd-4afb-bee8-66ddd052f0d0) is the only account I have concrete evidence of him scamming, so its the only one included in the paste.
 - https://postimg.cc/Kk7mqzks
 - https://postimg.cc/2bNz7v6Z
 - https://postimg.cc/cv64x02r
