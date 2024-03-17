@@ -50,7 +50,7 @@ https://ibb.co/vhyQ9Kb
 https://ibb.co/fpYKmMZ
 https://ibb.co/1ry6XtP
 
-He almost didnt even lock safatron, assumingly because he thought he didn't have enough ogi since safatron is raped. Here's him pulling pussying out on his promise to lock safatron.
+He almost didnt even lock safatron, assumingly because he thought he didn't have enough ogi since safatron is raped. Here's him pussying out on his promise to lock safatron.
 Also, for some reason he wanted to lock Stroke. I don't remember if Prevail had already sold that account or not by the time he scammed out, but regardless roxivity wouldn't have been able to lock it because he had never owned it. Yet again more larping from this German nigger.
 https://ibb.co/7n3xWNd
 https://ibb.co/7x39q9S
