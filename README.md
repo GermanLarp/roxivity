@@ -30,7 +30,7 @@ probably not even a complete list lol
   - https://ibb.co/NsXCJz1
   - This is definitely roxivity, even though he tried to be slick by using an alt. The messages were sent over a week before he sold it to richstage (the guy that made the DD) according to dates seen in the screenshot of the deal provided by roxivity himself in the DD: https://prnt.sc/JrTKIkDnKnKD
 
-[Him trying to pull oge access to /6's triple](https://imgur.com/a/rOZGgNg)
+[Him trying to sell oge to /6's triple](https://imgur.com/a/rOZGgNg)
 
 [Anxieted](https://namemc.com/profile/c8efda89-e4cd-4afb-bee8-66ddd052f0d0) is the only account I have concrete evidence of him scamming, so its the only one included in the paste.
 - https://postimg.cc/Kk7mqzks
